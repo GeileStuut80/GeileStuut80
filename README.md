@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GeileStuut80
-- 👀 I’m interested in .maling a sipple buisoesscard i can use in telegram groups
+- 👀 I’m interested in .maling a sipple visitekaartjes i can use in telegram groups
 - 🌱 I’m currently learning to do quick bussinwaa requeat and deliver.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
